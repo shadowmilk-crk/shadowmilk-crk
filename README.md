@@ -6,8 +6,8 @@
 
 𝄢 socials
 
-![](https://i.ibb.co/4tRhkjd/23-E0791-E-F67-D-42-A8-AFCF-2401-A1533592.png) [pixilart](https://www.pixilart.com/augustinetism) , discord : augustinetism ![](https://i.ibb.co/4tRhkjd/23-E0791-E-F67-D-42-A8-AFCF-2401-A1533592.png)
+![](https://i.ibb.co/4tRhkjd/23-E0791-E-F67-D-42-A8-AFCF-2401-A1533592.png) [pixilart](https://www.pixilart.com/augustinetism) , discord : imsowner. ![](https://i.ibb.co/4tRhkjd/23-E0791-E-F67-D-42-A8-AFCF-2401-A1533592.png)
 
-[list of pony town regiment/scouts im in](https://rentry.co/painterzz-regis)
+[list of pony town regiment/scouts im in](https://rentry.co/fansfantasticfeatures-regis)
 
 ![](https://64.media.tumblr.com/de48c10d82f8c2cadfda2796c6ab13b7/273f50112f8b00b0-fb/s75x75_c1/60f7177588abc6f14f20927fcd613cd18ed2c2ec.gifv)
