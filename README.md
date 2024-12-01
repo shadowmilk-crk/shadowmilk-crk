@@ -1,4 +1,5 @@
 ![PAYJAY SCENE](https://cdn.discordapp.com/attachments/1277582244478980156/1312751924755562497/Screenshot_2024_1130_132148.png?ex=674da300&is=674c5180&hm=050508653c77ae73883f6ea238e8bfdf7521d38e2cb3282109adcf335ac4a16a&)
+
 **xiru** / winnie / *painty*
 
 ![](https://i.ibb.co/tsNw7RC/22-F9-D32-B-76-F1-41-A6-835-C-3-BA1-DC63-D45-F.gif) PAYJAYYYYYY AUGHDHHHHHHHHHHHHHHHHHHH ⪩⪨
@@ -11,3 +12,5 @@
 retired from pony town regis >__O
 
 ![](https://64.media.tumblr.com/de48c10d82f8c2cadfda2796c6ab13b7/273f50112f8b00b0-fb/s75x75_c1/60f7177588abc6f14f20927fcd613cd18ed2c2ec.gifv)
+
+>![](https://64.media.tumblr.com/9da99e8a95a5de959dc7c98127012931/e2b52ef20aeb8f7b-3a/s250x400/71736763bc3c2e4343dbef3f06dadb268cd63e13.gifv)<
