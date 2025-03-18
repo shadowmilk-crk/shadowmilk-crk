@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?shadowmilk-crk&color=698ee7)
+
 gyaatttt 
 
 read my rentry for proper info
